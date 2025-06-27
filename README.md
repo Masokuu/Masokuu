@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Masokuu
-- 👀 I’m interested in VFX, Video Games
-- 🌱 I’m currently learning VFX
+- 👀 I’m interested in VFX, Video Games, Anime
+- 🌱 I’m currently learning Graphic Design
 - 💞️ I’m looking to collaborate on Video Games
 - 📫 How to reach me ...
 
